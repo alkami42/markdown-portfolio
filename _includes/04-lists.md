@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Sequoia national park
+2. Haleakala national park
+3. Mount Ranier national park
